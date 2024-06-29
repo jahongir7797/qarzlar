@@ -1,0 +1,2 @@
+# qarzlar
+ yangi
